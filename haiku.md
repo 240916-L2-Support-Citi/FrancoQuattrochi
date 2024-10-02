@@ -8,7 +8,7 @@ A world of struggle.
 The light of a candle
 Is transferred to another candle—
 Spring twilight
-
-
-
+Whispers in the breeze,
+Leaves dance under autumn's glow,
+Time drifts softly by.
 Goodbye
